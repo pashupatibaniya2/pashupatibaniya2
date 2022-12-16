@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pashupatibaniya2
 - 👀 I’m interested in Networking and Cybersecurity
-- 🌱 I’m currently learning M.TECH. Networking and Cybersecurity
+- 🌱 I’m currently learning M.TECH. Networking and Cybersecurity from Sharda University, Greater Noida, India
 - 📫 How to reach me 
 - Facebook :- https://www.facebook.com/pashupatibaniya2
 - Twitter :- https://twitter.com/BaniyPashupati
